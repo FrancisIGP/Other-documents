@@ -1,3 +1,3 @@
-# Other-documents
+# Miscellaneous
 ### I post my other documents here for open resource. Feel free to utilize it.
 ### All Documents are uploaded above.
